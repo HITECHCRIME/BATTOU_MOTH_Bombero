@@ -39,22 +39,23 @@ Y la escopeta sin querer se le dispara
 lo consume la puta agonia
 Como si tuviera vida propia
 
-no
-i cannot die
-i cannot lie
+no, i cannot die, i cannot lie
 what a fucking night
-i give time
-i'm gonna cry
-wanna fucking die
+i give it time, i'm gonna cry
+wanna fucking die (rise)
 all of this is mine
 oh this is tight
-i don't want this darkness (in my mind)
-i cannot fight
+i don't want this darkness - mind
+oh i cannot fight
+(fuck ye fuck it in ye))
 i cannot die
-arise
-
+baby arise 
+maybe it was i
+burning alive and alight
 in a fucking night
 
+
+baby arise (scream: awaiting
 
 
 
