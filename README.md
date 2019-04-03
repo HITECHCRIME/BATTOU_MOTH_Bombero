@@ -33,11 +33,7 @@ Bate y lanzallama
 Estas putas pidieron que las bautizara
 Y la escopeta sin querer se le dispara
 
-
-
-
-lo consume la puta agonia
-Como si tuviera vida propia
+[MOTHNODE]
 
 no, i cannot die, i cannot lie
 what a fucking night
