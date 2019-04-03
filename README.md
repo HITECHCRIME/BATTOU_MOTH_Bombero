@@ -41,18 +41,21 @@ Como si tuviera vida propia
 
 no, i cannot die, i cannot lie
 what a fucking night
-i give it time, i'm gonna cry
+when I give time, i'm gonna dry
+
 wanna fucking die (rise)
 all of this is mine
 oh this is tight
-i don't want this darkness - mind
+
+don't want darkness in my mind
 oh i cannot fight
 (fuck ye fuck it in ye))
 i cannot die
 baby arise 
+
 maybe it was i
-burning alive and alight
-in a fucking night
+burning alive n alight
+in the fucking night
 
 
 baby arise (scream: awaiting
