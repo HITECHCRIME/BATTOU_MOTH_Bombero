@@ -53,6 +53,9 @@ maybe it was i
 burning alive n alight
 in the fucking night
 
+all in the maze
+
+
 
 baby arise (scream: awaiting
 
