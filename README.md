@@ -38,13 +38,13 @@ Y la escopeta sin querer se le dispara
 no, i cannot die, i cannot lie
 what a fucking night
 when I give time, i'm gonna dry
-
 wanna fucking die (rise)
+
 all of this is mine
 oh this is tight
-
 don't want darkness in my mind
 oh i cannot fight
+
 (fuck ye fuck it in ye))
 i cannot die
 baby arise
