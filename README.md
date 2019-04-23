@@ -35,23 +35,26 @@ Y la escopeta sin querer se le dispara
 
 [MOTHNODE]
 
+i feel defined
+
 no, i cannot die, i cannot lie
 what a fucking night
 I give it time, i'm gonna dry
-wanna fucking die (rise)
+wanna fucking die 
+(crazy rise)
 
 all of this is mine, oh this is tight
 - I don't want this darkness - mind
 i cannot fight
 
-(fuck ye fuck it in ye))
+(fuck ye fuck it in ye)
 i cannot rise
 (crazy arise)
 
 maybe it was i
 burning alive n alight
 in the night
-i feel defined
+
 
  
 
