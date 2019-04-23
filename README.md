@@ -37,17 +37,16 @@ Y la escopeta sin querer se le dispara
 
 no, i cannot die, i cannot lie
 what a fucking night
-when I give time, i'm gonna dry
+I give it time, i'm gonna dry
 wanna fucking die (rise)
 
-all of this is mine
-oh this is tight
-I don't want this darkness (in my) mind
-oh i cannot fight
+all of this is mine, oh this is tight
+- I don't want this darkness - mind
+i cannot fight
 
 (fuck ye fuck it in ye))
-i cannot die
-(baby arise)
+i cannot rise
+(crazy arise)
 
 maybe it was i
 burning alive n alight
