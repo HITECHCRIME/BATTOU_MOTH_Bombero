@@ -42,19 +42,19 @@ wanna fucking die (rise)
 
 all of this is mine
 oh this is tight
-don't want darkness in my mind
+I don't want this darkness (in my) mind
 oh i cannot fight
 
 (fuck ye fuck it in ye))
 i cannot die
-baby arise
+(baby arise)
 
 maybe it was i
 burning alive n alight
 in the night
 i feel defined
 
-
+ 
 
 
 
