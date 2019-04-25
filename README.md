@@ -10,6 +10,7 @@ Song by Monki and Satsu and MOTHNODE.
 
 ## Lyrics
 
+
 ```
 
 Como lo vi en la boda roja
