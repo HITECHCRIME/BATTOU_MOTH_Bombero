@@ -1,4 +1,4 @@
-# Battousaigang x MOTHNODE_ Bombero Gang
+# Battousaigang x MOTHNODE_ Bomber Gang
 
 ## Data
 
