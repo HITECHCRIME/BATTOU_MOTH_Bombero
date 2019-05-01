@@ -1,3 +1,5 @@
+Insert cover.
+
 # Battousaigang x MOTHNODE_ Bomber Gang
 
 ## Data
