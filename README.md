@@ -1,4 +1,4 @@
-Insert cover.
+Insert cover here.
 
 # Battousaigang x MOTHNODE_ Bomber Gang
 
