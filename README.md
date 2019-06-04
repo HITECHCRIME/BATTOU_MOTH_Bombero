@@ -14,6 +14,25 @@ Song by Monki and Satsu and MOTHNODE.
 
 
 ```
+Como lo vi en la boda roja
+Esa garganta se la corta
+Se Vuelve inmortal como kid Buu
+Cuantas vidas lleva según tu
+Las brujas invocando a Cthulhu
+
+right
+wanna fucking die 
+(crazy arise)
+all of this is mine
+oh this is tight
+- I don't want this darkness
+mind i cannot fight
+(fuck ye fuck it in ye)
+i cannot rise
+(crazy arise)
+maybe it was i
+burning alive n alight
+in the night 
 
 Como lo vi en la boda roja
 Esa garganta se la corta
