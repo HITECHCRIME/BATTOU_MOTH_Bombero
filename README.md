@@ -55,6 +55,15 @@ Bate y lanzallama
 Estas putas pidieron que las bautizara
 Y la escopeta sin querer se le dispara
 
+no, i cannot die 
+i cannot lie
+what a fucking night
+i give it time, i'm gonna dry
+wanna fucking die 
+
+bitch please
+let me rest in peace
+
 [MOTHNODE]
 
 no, i cannot die 
