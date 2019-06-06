@@ -6,7 +6,7 @@ Insert cover here.
 
 Song by Monki and Satsu and MOTHNODE.
 
-**Title:** Bombero Gang | **Featuring:** Battousaigang (Monki, Satsugai), MOTHNODE
+**Title:** Bomber Gang | **Featuring:** Battousaigang (Monki, Satsugai), MOTHNODE
 
 **Production:** Monki | **Lyrics:** Monki, Satsugai, MOTHNODE
 
