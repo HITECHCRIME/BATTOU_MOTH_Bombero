@@ -14,86 +14,78 @@ Song by Monki and Satsu and MOTHNODE.
 
 
 ```
-Como lo vi en la boda roja
-Esa garganta se la corta
-Se Vuelve inmortal como kid Buu
-Cuantas vidas lleva según tu
-Las brujas invocando a Cthulhu
+se vuelve inmortal como kid Buu
+cuantas vidas lleva según tu
+las brujas invocando a Cthulhu
+las brujas invocando a Cthulhu
 
-right
-wanna fucking die 
-(crazy arise)
+right 
+wanna fucking die (crazy arise)
 all of this is mine
 oh this is tight
 - I don't want this darkness
-mind i cannot fight
-(fuck ye fuck it in ye)
+mind i cannot fight (fuck ye fuck it in ye)
 i cannot rise
-(crazy arise)
+crazy arise
 maybe it was i
 burning alive n alight
 in the night 
+the night the night the night
 
-Como lo vi en la boda roja
-Esa garganta se la corta
-Se Vuelve inmortal como kid Buu
-Cuantas vidas lleva según tu
-Las brujas invocando a Cthulhu
-Y en unos segundos
-Se autodegollan, poseídas
-Con heridas se mutilan
-No más pasado el Minuto
-Parecen que están Medio vivas
-Prepagos satánicas. 
+i, i want to die
+shiniyashinai  死にやしない
+no me moriré 
+primero te mataré 
+esas jordan en tus pies
+las tienes alrevez
+círculo de sal
+what a fucking night (die?)
+me voy a quemar 
+your lies makes me dry
+i'm going to fucking die
+bitch
+
+all of this is mine
+all of this is mine
+
+put me inside the grave
+bitch please let me rest in peace 
+put me inside the grave
+bitch please let me rest in peace
+no, no me voy a negar
+justo a punto de morir
+no, no me voy a negar
+justo a punto de morir
+
+como lo vi en la boda roja
+esa garganta se la corta
+se Vuelve inmortal como kid Buu
+cuantas vidas lleva según tu
+las brujas invocando a Cthulhu
+y en unos segundos
+se autodegollan, poseídas
+con heridas se mutilan
+no más pasado el minuto
+parecen que están medio vivas
+prepagos satánicas. 
 Vestidas de negro con túnicas
-Toni vercetti espera en la línea
-El ángel de la muerte pide la señal
-Ya está en el lugar con un arsenal
+toni vercetti espera en la línea
+el ángel de la muerte pide la señal
+ya está en el lugar con un arsenal
+le desace la cara apunta de bala
+bate y lanzallama 
+estas putas pidieron que las bautizara
+y la escopeta sin querer se le dispara
 
-Le desace la cara apunta de bala
-Bate y lanzallama 
-Estas putas pidieron que las bautizara
-Y la escopeta sin querer se le dispara
-
-no, i cannot die 
-i cannot lie
-what a fucking night
-i give it time, i'm gonna dry
-wanna fucking die 
-
-bitch please
-let me rest in peace
-
-[MOTHNODE]
-
-no, i cannot die 
-i cannot lie
-what a fucking night
-i give it time, i'm gonna dry
-wanna fucking die 
-(crazy arise)
 all of this is mine
 oh this is tight
-- I don't want this darkness
-mind i cannot fight
-(fuck ye fuck it in ye)
-i cannot rise
-(crazy arise)
-maybe it was i
-burning alive n alight
-in the night 
+all of this is mine
+oh this is tight
 
 ```
 ## Notes
 
 i feel defined
-
-...
-
 all in the maze
 this is a craze
-days
-
-
-
-baby arise (scream: awaiting
+days, baby arise (scream: awaiting
