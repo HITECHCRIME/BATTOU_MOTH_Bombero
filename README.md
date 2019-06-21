@@ -2,9 +2,11 @@
 
 # Battousaigang x MOTHNODE_ Bombero (Kid Buu)
 
+**Listen now:** https://soundcloud.com/battousaigang/
+
 ## Data
 
-Song by Monki and Satsu and MOTHNODE.
+Part of Battousaigxng's 'Mandrax' EP. Song by Monki, Satsu and MOTHNODE.
 
 **Title:** Bomber Gang | **Featuring:** Battousaigang (Monki, Satsugai), MOTHNODE
 
