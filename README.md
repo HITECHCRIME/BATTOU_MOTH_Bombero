@@ -1,6 +1,6 @@
 ![](mandrax2.jpg)
 
-# Battousaigang x MOTHNODE_ Bomber Gang
+# Battousaigang x MOTHNODE_ Bombero (Kid Buu)
 
 ## Data
 
