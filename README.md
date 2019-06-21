@@ -1,4 +1,4 @@
-Insert cover here.
+![](mandrax2.jpg)
 
 # Battousaigang x MOTHNODE_ Bomber Gang
 
