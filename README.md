@@ -2,7 +2,7 @@
 
 # Battousaigang x MOTHNODE_ Bombero (Kid Buu)
 
-**Listen now:** https://soundcloud.com/battousaigang/
+**Listen now:** https://soundcloud.com/battousaigang/sets/mandrax-ep
 
 ## Data
 
